@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ViianSnow
+- 👋 Hi, I’m @VivianSnow
 - 👀 I’m interested in playing video games and art
 - 🌱 I’m currently learning nothing rn i just did this for fun
 - 💞️ I’m looking to collaborate on nothing
